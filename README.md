@@ -1,2 +1,0 @@
-# Amor
-Amor
